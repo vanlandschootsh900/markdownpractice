@@ -7,4 +7,11 @@
 
 
 [Amazon](https://www.amazon.com/ref=nav_logo)
-[YouTube](
+
+[YouTube](https://youtu.be/_uQrJ0TkZlc?feature=shared)
+
+
+
+## About Me
+- **I hate cats**
+- *I love dogs*
